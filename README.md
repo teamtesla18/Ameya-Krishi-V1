@@ -1,1 +1,0 @@
-# Ameya-Krishi-V1
